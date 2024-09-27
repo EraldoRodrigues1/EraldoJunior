@@ -8,7 +8,7 @@ Meu nome é Eraldo Rodrigues
 
 ### Você pode entrar em contato comigo por 📧
 
-EraldoJunior209@gmail.com
+junioreraldo209@gmail.com
 
 @EraldoJunior
 
